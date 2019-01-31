@@ -2,9 +2,9 @@
 
 Презентации:
 
-https://docs.google.com/presentation/d/1LJyzAWU312WOIHk6Dqy1QgR2EhDL9WaDe3nVT8BzAFo/edit?usp=sharing
+https://docs.google.com/presentation/d/1DFx3h6QHVSq4d8jqzGqIg3f1IK9gXmbbego-Es99a7k/edit?usp=sharing
 
-https://docs.google.com/presentation/d/10fHBgwZN6Swib5iNB-ZvhJEjysSdIBrGpDLF5_NUiFY/edit?usp=sharing
+https://docs.google.com/presentation/d/1NeBOiqkEI0wt08S9Bcol7lHifRGPQLgeuvrOmic1bqg/edit?usp=sharing
 
 ### servers
 
